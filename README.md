@@ -1,0 +1,1 @@
+# 202431187_Siska-Putrirani_Ketetanggaan_dan_Konvolusi
